@@ -1,1 +1,1 @@
-vai porco dio dai duce dio cane
+io sono con il pesh e sebi daje e io faccio le paste
